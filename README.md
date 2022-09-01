@@ -1,0 +1,2 @@
+# turgunboy
+Guli.uchun
